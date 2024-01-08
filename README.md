@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Hi 👋 I'm Omer Dotchamou
+I'm Omer Dotchamou
 ===============================
 
 Crafting Digital Experiences at the Intersection of Innovation and Web3 🚀
